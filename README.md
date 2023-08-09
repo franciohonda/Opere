@@ -1,1 +1,1 @@
-questo sito è stato creato dal primo anno del cfp informatico di elis di Roma# Opere
+questo sito è stato creato a scopo didattico dal primo anno del cfp informatico di elis di Roma# Opere
